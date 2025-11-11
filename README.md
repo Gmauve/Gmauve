@@ -1,12 +1,10 @@
-# (〜￣▽￣)〜 Mr Nagy over here
-#### full of enargy! ( •̀ ω •́ )✧
-###### Haha
+# Mr Nagy over here :]
 
 ## Hello Bonjour!
 🎮 • I'm studying mostly to make games and 3D models<br/>
 🎵 • I absolutely love to make music and want to make music for games<br/>
 🎹 (I play piano)<br/>
-💻 // Programming is great, but what's then created is *Awsomer*
+💻 // Programming is great, but what's then created is even *Better*
 
 <!--
 **Gmauve/Gmauve** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
