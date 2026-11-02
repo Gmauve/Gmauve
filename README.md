@@ -1,7 +1,7 @@
-# Mr Nagy over here :]
+# I'm Mr Nagy :]
 
 ## Hello Bonjour!
-🎮 • I'm studying mostly to make games and 3D models<br/>
+🎮 • I'm studying to get better at making video games, 3D models and animations<br/>
 🎵 • I absolutely love to make music and want to make music for games<br/>
 🎹 (I play piano)<br/>
 💻 // Programming is great, but what's then created is even *Better*
